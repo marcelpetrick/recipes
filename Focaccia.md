@@ -16,5 +16,5 @@
 3. **First Rise**: Place dough in an oiled bowl, cover, and let rise for 1 hour until doubled in size.
 4. **Shape Dough**: Punch down dough, spread on a parchment-lined baking sheet, pressing to 1-2 cm thick. Dimple with fingers.
 5. **Second Rise**: Brush with olive oil, sprinkle with sea salt and herbs. Cover and let rise for 30 minutes.
-6. **Bake**: Preheat oven to 230°C. Bake for 10 min, then reduce heat to 200°C with cover. Bake until golden brown.
+6. **Bake**: Preheat oven to 220°C (430°F). Bake for 20-25 minutes until golden brown.
 7. **Serve**: Cool slightly, cut, and enjoy.
