@@ -19,4 +19,3 @@
 6. Den Teig gleichmäßig in die Muffinform füllen.
 7. Für 20-25 Minuten backen, bis ein Zahnstocher sauber herauskommt.
 8. Muffins einige Minuten in der Form abkühlen lassen, dann herausnehmen und auf einem Kuchengitter vollständig abkühlen lassen.
-9. 
