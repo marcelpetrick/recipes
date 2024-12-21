@@ -10,7 +10,7 @@
 - 1 Pck. Vanillezucker
 - 2 TL Backpulver (gestrichen)
 - 1 Prise Salz
-- 200 g Schokostückchen, Zartbitter (backstabil)
+- 200 g Schokostückchen, Zartbitter
 
 ## Anleitung
 1. **Vorbereitung:** Den Backofen auf 160 Grad (Umluft) vorheizen. Papierförmchen in das Muffinblech setzen.
