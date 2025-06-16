@@ -42,6 +42,3 @@
 4. **Backen:**
    - Die Pizza Rolls mit dem verquirlten Ei bestreichen und nach Belieben mit Sesam oder Mohn bestreuen.
    - Im vorgeheizten Backofen bei 200 °C (Ober-/Unterhitze) ca. 15-20 Minuten backen, bis sie goldbraun sind.
-
-5. **Servieren:**
-   - Die Pizza Rolls leicht abkühlen lassen und warm servieren.

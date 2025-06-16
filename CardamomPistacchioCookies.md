@@ -21,5 +21,3 @@ _Servings:_ 48 cookies
 4. Towards the end of the cooling time, preheat the oven to 180°C top/bottom heat and line a baking sheet with parchment paper.
 5. Unwrap the roll and cut it with a sharp knife into 20-24 slices. If necessary, reshape the slices slightly if they become deformed while cutting, and place them on the parchment paper.
 6. Bake in the preheated oven for about 10 minutes or until the edges just begin to brown. Remove the cookies from the oven and let them cool on the baking sheet.
-
-Enjoy your meal!

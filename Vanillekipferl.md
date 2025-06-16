@@ -32,5 +32,3 @@
 **Baking Time:** 10–15 minutes  
 **Cooling Time:** 30 minutes  
 **Temperature:** 175°C  
-
-Enjoy these classic, buttery Vanillekipferl with their delicate almond and vanilla flavor!

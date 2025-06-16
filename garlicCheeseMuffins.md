@@ -25,4 +25,3 @@
 ## Hinweise
 - Es kann jeder Käse nach Wahl verwendet werden.
 - Für eine pikante Note 1/4 TL Chiliflocken zum Teig hinzufügen.
-- 
