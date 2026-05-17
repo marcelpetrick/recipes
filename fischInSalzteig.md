@@ -7,8 +7,8 @@ Der Salzteig bildet eine feste Kruste, die den Fisch schonend gart und die Feuch
 
 ## 🐟 Zutaten
 - 3 ganze Forellen (ausgenommen, mit oder ohne Kopf)
-- ca. 1,5 kg grobes Salz
-- 2–4 Eiweiß **ODER** ca. 150–200 ml Wasser
+- ca. 2,5 kg grobes Salz oder Tafelsaz
+- 4 Eiweiß und 50 ml Wasser
 - Optional:
   - 1 Zitrone (in Scheiben)
   - Frische Kräuter (Petersilie, Dill, Thymian)
@@ -27,10 +27,6 @@ Der Salzteig bildet eine feste Kruste, die den Fisch schonend gart und die Feuch
 - Salz + Wasser vermengen, bis die Masse zusammenhält  
 - Etwas weniger stabil → Kruste kann leichter reißen
 
-### 3. Kombi (beste Balance)
-- Salz + 1–2 Eiweiß + etwas Wasser  
-- Ergibt gute Bindung + leichte Verarbeitung
-
 ---
 
 ## 🔪 Vorbereitung
@@ -45,7 +41,7 @@ Der Salzteig bildet eine feste Kruste, die den Fisch schonend gart und die Feuch
 
 ## 🧱 Salzteig-Kruste formen
 1. Backblech mit Backpapier auslegen
-2. Hälfte des Salzteigs als Bett formen (ca. 1–2 cm dick)
+2. Hälfte des Salzteigs als Bett formen (ca. 1 cm dick)
 3. Forellen darauf legen
 4. Mit restlichem Salzteig vollständig bedecken
    - gut andrücken
@@ -55,4 +51,4 @@ Der Salzteig bildet eine feste Kruste, die den Fisch schonend gart und die Feuch
 
 ## 🔥 Backen
 - **200 °C**
-- ca. **25–35 Minuten** (je nach Größe der Forellen)
+- ca. **35 Minuten** (je nach Größe der Forellen)
